@@ -7,29 +7,27 @@ Just resolve to begin. When you notice you are off track, come back to the momen
 
 > "Life passes without you noticing. Since this particular life is so precious, you shouldn't waste your time following the whims of your wandering mind. Not knowing how long we will live, we must value the precious time we have right now and not waste it." [^@Rinpoche:2009a]
 
-Secondly, the beginning refers to the first stages of practice. Become familiar with the territory of Mind-Training. Developing motivations, intentions, and aspirations with a clear mind. 
+Secondly, the beginning refers to the first stages of practice. Become familiar with the territory of Mind-Training. Developing motivations, intentions, and aspirations with a clear mind.
 
-Create an environment in which to engage with the practice. At first, you foster a mental climate, and this forms the basis of your beginning. All of your life springs from your mind, what you think colors what you experience. 
+Create an environment in which to engage with the practice. At first, you foster a mental climate, and this forms the basis of your beginning. All of your life springs from your mind, what you think colors what you experience.
 
 This beginning is returned to again and again. We usually start a practice or endeavor and then continue on and on, forgetting what it was like to be a beginner. This slogan points out how important the beginning is. Return again and again to the fundamentals, to your original motivations, intentions, and aspirations.  
 
-Stabilizing your attention, being mindful of daily behavior, determining to let go of harmful pattern-based activities, and genuinely desire to be of service to others. Slowly create a physical environment that supports your intentions. 
+Stabilizing your attention, being mindful of daily behavior, determining to let go of harmful pattern-based activities, and genuinely desire to be of service to others. Slowly create a physical environment that supports your intentions.
 
-Below are four areas to focus on at the beginning. Turn your thoughts to these in turn. 
+Below are four areas to focus on at the beginning. Turn your thoughts to these in turn.
 
 ## 1. The preciousness and rarity of my life.
-Realize that your life is the only one you know you'll have. Use this life wisely. Your life is a gift from the universe. The odds of your birth are astronomical. Now that you are here, this opportunity is so precious. The fact of your existence is extraordinary. 
+Realize that your life is the only one you know you'll have. Use this life wisely. Your life is a gift from the universe. The odds of your birth are astronomical. Now that you are here, this opportunity is so precious. The fact of your existence is extraordinary.
 
 ## 2. The inevitability of my death.
-We run from the idea of thinking about our death, but it is inevitable. **Memento Mori** is a Stoic slogan that is meant to remind you of the fact that 'you can never be certain of living long enough to take another breath.' Death is part of the cycle of change. Change is what gives life its animation. Operating from the understanding that death waits for you allows you to be more present in all the moments that matter. 
+We run from the idea of thinking about our death, but it is inevitable. **Memento Mori** is a Stoic slogan that is meant to remind you of the fact that 'you can never be certain of living long enough to take another breath.' Death is part of the cycle of change. Change is what gives life its animation. Operating from the understanding that death waits for you allows you to be more present in all the moments that matter.
 
 ## 3. The awesome and indelible power of my actions.
-What you do has consequences. Your actions mostly are unseen. A butterfly flaps its wings on one side of the world, and a hurricane develops on the other. A warm smile on the street is passed on and on rippling throughout time and space. Being kind barely costs a thing. You'll hardly remember you did it, but the other person may never forget that you did. 
-
-   - WM Nothing Can Last [[202011112105]]
+What you do has consequences. Your actions mostly are unseen. A butterfly flaps its wings on one side of the world, and a hurricane develops on the other. A warm smile on the street is passed on and on rippling throughout time and space. Being kind barely costs a thing. You'll hardly remember you did it, but the other person may never forget that you did.
 
 ## 4. The inescapability of suffering.
-Who doesn't try and avoid pain? Isn't this futile? You will get through the pain. Pain still hurts, and you can let this suffering forge you into a stronger person — no need to be glib about suffering or loss. There's no need to turn away from what is heading toward us. Instead, we can embrace it. All that is dear to you and everything you love, you'll have to give back. It will breakdown and dust. 
+Who doesn't try and avoid pain? Isn't this futile? You will get through the pain. Pain still hurts, and you can let this suffering forge you into a stronger person — no need to be glib about suffering or loss. There's no need to turn away from what is heading toward us. Instead, we can embrace it. All that is dear to you and everything you love, you'll have to give back. It will breakdown and dust.
 
 When on retreat, we chant the "5 Remembrances" every morning with simple bells. Then start the days' meditation cycles. Reciting these is a reminder to begin again and drop the constant internal chatter. Begin at this moment, with commitment, and without hesitation.
 
@@ -48,7 +46,7 @@ When on retreat, we chant the "5 Remembrances" every morning with simple bells. 
 
 ----------------------------------------------------------------
 
-Always train in the 3 basic elements ...........................[[201903220513]]
+Always train in the 3 basic elements ...........................[\[\[201903220513\]\]](201903220513  Ω Always train in the 3 basic elements.md)  
 Begin Tonglen with yourself ....................................[[201903090508]]
 Remedy obstacles with one intention ............................[[201904080510]]
 Tonglen Instructions ...........................................[[201901200704]]
