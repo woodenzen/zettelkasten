@@ -1,4 +1,4 @@
-# Two activities: begin the day, end the day 
+# Two activities begin the day end the day 
 (41)
 
 This is a practical slogan that describes a sweet daily practice. Practicing with this slogan will grow your motivation and commitment to be present each day.
@@ -9,9 +9,9 @@ At the beginning of each day, while still in bed:
 
 - Make a pledge to be kind, curious, and different.
 - Express your aspiration to be of service to others.
-- Express the intention to be present in every encounter. 
+- Express the intention to be present in every encounter.
 
-Start each day with the intention to benefit others. The intention of waking up. The intention to do for others, to be the tool of kindness. That's the point of today. That's why you get out of bed. This is the work of being human. 
+Start each day with the intention to benefit others. The intention of waking up. The intention to do for others, to be the tool of kindness. That's the point of today. That's why you get out of bed. This is the work of being human.
 
 In the evening, just before bed:
 
@@ -21,7 +21,7 @@ In the evening, just before bed:
 
 Reflect on where you've fallen short and failed to actualize your intentions. Be brutally honest. Don't waste time. Don't judge but look to the events of the day as a way to learn and grow. Look at areas where things went well, no matter how grand or trivial, and dedicate them to the benefit of others.
 
-This practice is a life-long endeavor. What you do each day, in each moment, makes up who you are and who you become. In horizontal time, past days are done, the future is nebulous. This is the work of abandoning defects and nurturing loving-kindness. Use today to make a difference. 
+This practice is a life-long endeavor. What you do each day, in each moment, makes up who you are and who you become. In horizontal time, past days are done, the future is nebulous. This is the work of abandoning defects and nurturing loving-kindness. Use today to make a difference.
 
 ----------------------------------------------------------------
 
