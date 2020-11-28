@@ -20,7 +20,7 @@ Be true to the principled one ..................................[[201903190550]]
 Train without bias .............................................[[201904160516]]
 To Soon To Say .................................................[[202009211958]]
 
-### Alternate Titles
+## Alternate Titles
 - Whichever of the two occurs, be patient
 - Whichever of the two arises, be patient
 - Be patient with whichever of the two arises
