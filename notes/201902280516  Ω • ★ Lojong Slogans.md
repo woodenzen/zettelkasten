@@ -1,0 +1,98 @@
+# • ★ Lojong Slogans 
+
+**I dedicate this practice to the universe.** 
+
+# 1. Groundwork
+
+Begin with the beginning [[201902280602]] (1) ✔︎ 
+
+# 2. The Practices 
+
+## Awakening to what is ultimately true
+
+Treat experiences as dreams [[201903010555]] (2) ✔︎   
+Examine the nature of awareness [[201903020514]] (3) ✔︎
+Don't get trapped by emptiness [[201903030457]] (4) ✔︎
+Rest in the openness of mind [[201903040448]] (5)  ✔︎
+In the intervals be a conjurer of illusions [[201903050446]] (6) ✔︎
+
+## Awakening to what is apparently true
+
+Practice giving and receiving on the breath [[201903060456]] (7) ✔︎
+3 Objects, 3 Poisons, 3 Seeds of Virtue [[201903070509]] (8) ✔︎
+Always train with the slogans [[201903080539]] (9) ✔︎     
+Begin Tonglen with yourself [[201903090508]] (10) ✔︎ 
+
+# 3. Applying yourself
+
+Use misfortune as practice [[201903100511]] (11) ✔︎
+Drive all blame into a single source [[201903110656]] (12) ✔︎
+Be grateful to everyone [[201903120542]] (13) ✔︎
+Let confusion awaken and practice emptiness [[201903130526]] (14) ✔︎
+Do good, avoid evil, appreciate your lunacy, pray for help [[201903140603]] (15) ✔︎
+Every encounter suddenly becomes the path [[201903150533]] (16) ✔︎
+
+# 4. Living and dying
+
+Cultivate a serious attitude [[201903160423]] (17) ✔︎
+Practice for death as well as for life [[201903170457]] (18) ✔︎
+
+# 5. Measures of proficiency
+
+There is only one point of focus [[201903180624]] (19) ✔︎
+Be true to the principled one [[201903190550]] (20) ✔︎
+Cultivate an ever-present joyful mind [[201903200647]] (21) ✔︎
+Proficiency comes when practicing even when distracted [[201903210523]] (22) ✔︎
+Always train in the basics [[201903220513]] (23) ✔︎
+
+# 6. The 'Don't' Section
+
+Don't make a public display of your efforts [[201903230512]] (24) ✔︎
+Don't speak of the faults of others [[201903240542]] (25) ✔︎
+Don't ponder the actions of others [[201903250613]] (26) ✔︎
+Don't save your biggest problem [[201903260512]] (27) ✔︎
+Don't expect results [[201903270458]] (28) ✔︎
+Don’t poison yourself [[201903280559]] (29) ✔︎
+Don’t be so predictable [[201903290503]] (30) ✔︎
+Don’t be mean [[201903300509]] (31) ✔︎
+Don't wait in ambush [[201903310516]] (32) ✔︎
+Don’t make everything so painful [[201904010459]] (33) ✔︎
+Don’t unload on everyone [[201904020523]] (34) ✔︎
+Don't rush things  [[201904030514]] (35) ✔︎
+Don't be devious [[201904040538]] (36) ✔︎     
+Don’t make gods into demons  [[201904050528]] (37) ✔︎
+Don't be complacent of suffering [[201904060518]] (38) ✔︎
+
+# 7. The 'Do' Section
+
+Focus on a singe intention [[201904070610]] (39) ✔︎
+Remedy obstacles with one intention [[201904080510]] (40) ✔︎
+Two activities: begin the day, end the day  [[201904090608]] (41) ✔︎
+Be patient either way [[201904100507]] (42) 
+Observe, no matter what [[201904110510]] (43) 
+Face the three challenges [[201904120530]] (44) 
+Adopt three key elements [[201904130501]] (45) 
+Keep tract of the three key elements [[201904140544]] (46) 
+Keep the three inseparable [[201904150459]] (47)
+Train without bias [[201904160516]] (48) 
+Meditate on your dissatisfactions [[201904170606]] (49) 
+Embrace challenges presented by circumstances [[201904180505]] (50) 
+Right now exert yourself, get it right [[201904190458]] (51) 
+Remain committed and engaged [[201904200542]] (52) 
+Be consistent in your practice [[201904210547]] (53) 
+Be wholehearted [[201904220448]] (54) 
+Find freedom through investigation and close analysis [[201904230512]] (55) 
+Be modest and unassuming [[201904240458]] (56) 
+Practice sympathetic joy [[201904250633]] (57) 
+Be even tempered [[201904260449]] (58) 
+Benefit others without the hope of thanks [[201904270500]] (59) 
+
+# References
+
+
+----------------------------------------------------------------
+03-01-2019 - 6:16 AM
+›[[201902280516]]
+→ #slogans, #lojong
+
+\newpage
