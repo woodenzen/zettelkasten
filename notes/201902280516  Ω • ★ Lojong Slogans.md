@@ -19,7 +19,7 @@ In the intervals be a conjurer of illusions [\[\[201903050446\]\]](201903050446 
 ## Awakening to what is apparently true
 
 Practice giving and receiving on the breath [\[\[201903060456\]\]](201903060456  Ω Practice giving and receiving on the breath.md) (7)  
-3 Objects, 3 Poisons, 3 Seeds of Virtue [\[\[201903070509\]\]](201903070509  Ω 3 Objects, 3 Poisons, 3 Seeds of Virtue.md) (8)  
+3 Objects, 3 Poisons, 3 Seeds of Virtue [\[\[201903070509\]\]](201903070509  Ω 3 Objects, 3 Poisons, 3 Seeds of Virtue.md ) (8)  
 Always train with the slogans [\[\[201903080539\]\]](201903080539  Ω Always train with the slogans.md) (9)  
 Begin Tonglen with yourself [\[\[201903090508\]\]](201903090508  Ω Begin Tonglen with yourself.md) (10)  
 
