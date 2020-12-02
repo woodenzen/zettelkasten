@@ -52,7 +52,7 @@ Testing
 
 # 1. Groundwork
 
-1. Begin with the beginning [\[\[201902280602\]\]](201902280602 Begin with the beginning.md)  
+1. Begin with the beginning [\[\[201902280602\]\]](201902280602  Ω Begin with the beginning.md)  
 
 # 2. The Practices
 
