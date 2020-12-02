@@ -52,16 +52,16 @@ Testing
 
 # 1. Groundwork
 
-1. Begin with the beginning [\[\[201902280602\]\]](201902280602 Begin with the beginning.md)  
+1. Begin with the beginning [\[\[201902280602\]\]](201902280602  Ω Begin with the beginning.md)  
 
 # 2. The Practices
 
 ## Awakening to what is ultimately true
 
-2. Treat experiences as dreams [\[\[201903010555\]\]](201903010555 Treat experiences as dreams.md)    
-3. Examine the nature of awareness [\[\[201903020514\]\]](201903020514 Examine the nature of awareness.md)  
-4. Don't get trapped by emptiness [\[\[201903030457\]\]](201903030457 Don't get trapped by emptiness.md)  
-5. Rest in the openness of mind [\[\[201903040448\]\]](201903040448 Rest in the openness of mind.md)  
-6. In the intervals be a conjurer of illusions [\[\[201903050446\]\]](201903050446 In the intervals be a conjurer of illusions.md)  
+2. Treat experiences as dreams [\[\[201903010555\]\]](201903010555  Ω Treat experiences as dreams.md)    
+3. Examine the nature of awareness [\[\[201903020514\]\]](201903020514  Ω Examine the nature of awareness.md)  
+4. Don't get trapped by emptiness [\[\[201903030457\]\]](201903030457  Ω Don't get trapped by emptiness.md)  
+5. Rest in the openness of mind [\[\[201903040448\]\]](201903040448  Ω Rest in the openness of mind.md)  
+6. In the intervals be a conjurer of illusions [\[\[201903050446\]\]](201903050446  Ω In the intervals be a conjurer of illusions.md)  
 
 [^@Chodron:1994a]: Pema Chödrön (1994): _Start where you are: a guide to compassionate living_, Boston: Shambhala - @Chodron:1994a
