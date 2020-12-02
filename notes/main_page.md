@@ -25,6 +25,7 @@ Mind Training is not about being perfect. Mind Training is about incremental adv
 Feel free to explore what moves you, to meld the slogans for your purpose, be derivative, let the slogans influence you. What is important is what you do. Assimilate the slogans deeply, take then into yourself, compound them with your own experiences and thoughts and feelings, look at them from your perspective.
 
 The main commentary on the slogans is made up of 7 points. I've given the headings my twist.
+
     1. Groundwork  
     2. The Practices  
     3. Applying yourself  
@@ -45,5 +46,22 @@ The goal is to recommit too caring for the world and as a reminder to encourage 
 
 Continue the conversation anytime: will@kestrelcreek.com.
 
+Testing
+
+*I dedicate this practice to the universe.**
+
+# 1. Groundwork
+
+1. Begin with the beginning [\[\[201902280602\]\]](201902280602 Begin with the beginning.md)  
+
+# 2. The Practices
+
+## Awakening to what is ultimately true
+
+2. Treat experiences as dreams [\[\[201903010555\]\]](201903010555 Treat experiences as dreams.md)    
+3. Examine the nature of awareness [\[\[201903020514\]\]](201903020514 Examine the nature of awareness.md)  
+4. Don't get trapped by emptiness [\[\[201903030457\]\]](201903030457 Don't get trapped by emptiness.md)  
+5. Rest in the openness of mind [\[\[201903040448\]\]](201903040448 Rest in the openness of mind.md)  
+6. In the intervals be a conjurer of illusions [\[\[201903050446\]\]](201903050446 In the intervals be a conjurer of illusions.md)  
 
 [^@Chodron:1994a]: Pema Chödrön (1994): _Start where you are: a guide to compassionate living_, Boston: Shambhala - @Chodron:1994a
