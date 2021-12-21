@@ -14,11 +14,11 @@ Endure whichever situation arises, good or bad. Things change. Good turns bad an
 
 ----------------------------------------------------------------
 
-Proficiency comes when practicing even when distracted  ........[[201903210523]]
-Every encounter suddenly becomes the path ......................[[201903150533]]
-Be true to the principled one ..................................[[201903190550]]
-Train without bias .............................................[[201904160516]]
-To Soon To Say .................................................[[202009211958]]
+Proficiency comes when practicing even when distracted  ........[[201903210523]]  
+Every encounter suddenly becomes the path ......................[[201903150533]]  
+Be true to the principled one ..................................[[201903190550]]  
+Train without bias .............................................[[201904160516]]  
+To Soon To Say .................................................[[202009211958]]  
 
 ## Alternate Titles
 - Whichever of the two occurs, be patient
