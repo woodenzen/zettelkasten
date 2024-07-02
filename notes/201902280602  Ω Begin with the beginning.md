@@ -1,8 +1,3 @@
----
-title: Begin with the beginning
-date: 02-28-2019 - 6:02 AM
-category: slogans
----
 # Begin with the beginning
 (1)
 
