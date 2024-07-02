@@ -32,9 +32,6 @@ Don't make a public display of your efforts ....................[[201903230512]]
 ![](media/OI000014.jpg)
 
 ----------------------------------------------------------------
-04-27-2019 - 5:00 AM
-›[[201904270500]]
-→ #slogans
 
 
 <div style="page-break-after: always;"></div>
