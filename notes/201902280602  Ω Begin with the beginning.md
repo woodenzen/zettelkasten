@@ -1,3 +1,8 @@
+---
+title: Begin with the beginning
+date: 02-28-2019 - 6:02 AM
+category: slogans
+---
 # Begin with the beginning
 (1)
 
@@ -67,8 +72,5 @@ The Power Of Regret ............................................[[202009070839]]
 
 ----------------------------------------------------------------
 
-02-28-2019 - 6:02 AM
-›[[201902280602]]
-→ #slogans
 
 <div style="page-break-after: always;"></div>
